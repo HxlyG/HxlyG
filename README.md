@@ -3,4 +3,3 @@
 - 🌱 I’m currently learning web development
 - 📫 How to reach me: huxley.gladuestoltz@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I'm in a cool band called No Limit
